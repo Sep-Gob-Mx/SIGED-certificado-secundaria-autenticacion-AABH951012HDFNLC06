@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AABH951012HDFNLC06
+AABH951012HDFNLC06
